@@ -18,5 +18,7 @@ https://yoopu.me/
 
 这就是爱：https://yoopu.me/
 
+爱的魔法: https://yoopu.me/
+
 
 
